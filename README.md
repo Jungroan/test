@@ -1,2 +1,1 @@
-https://docs.google.com/presentation/d/1nzZ3bNoj-ZcnztqxFJUCoQrMVBeXqRZU5uxuVNiLXBo/edit#slide=id.p
- https://docs.google.com/presentation/d/1nzZ3bNoj-ZcnztqxFJUCoQrMVBeXqRZU5uxuVNiLXBo/edit?usp=sharing
+https://docs.google.com/presentation/d/14x1jbP6jM-vXVyhxDDTbfqPq3prUbBk24rLu-8EE4jw/edit?usp=sharing
